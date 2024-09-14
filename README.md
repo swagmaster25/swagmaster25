@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/653637af-c3d8-41b0-b4b4-740ba2348ebf)
+![image](https://github.com/user-attachments/assets/9e339585-5333-40c6-829a-d1f78404fe41)
 
-
-⠀⠀⠀⠀⠀⠀⠀[𝐑𝐄𝐍𝐓𝐑𝐘](https://rentry.co/hiponynation) ⠀⠀⠀⠀⠀ [𝐀𝐓𝐀𝐁𝐎𝐎𝐊](https://swagmaster25.atabook.org/?page=1) 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![image](https://github.com/user-attachments/assets/9c0e5ae6-9b6f-45bf-994c-7482ff61604c)
+](https://swagmaster25.atabook.org/?page=1) ⠀⠀⠀⠀⠀ [![image](https://github.com/user-attachments/assets/aac185f0-e2c5-4633-aa45-57470539b109)
+](https://rentry.co/hiponynation) 
