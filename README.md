@@ -1,6 +1,10 @@
 <p align="center">
-    <img src="https://files.catbox.moe/tudbeh.png">
-    <img src="https://files.catbox.moe/n3grzj.png">
-    <img src="https://files.catbox.moe/bmu64l.png">
+
+![](https://komarev.com/ghpvc/?username=swagmaster25&abbreviated=true&color=85A380)
+
+![image](https://github.com/user-attachments/assets/400132f8-55d3-4d3a-a79b-08d67558d630)
+
+c+h . w2i . highk a wip
+
 </p>
 
