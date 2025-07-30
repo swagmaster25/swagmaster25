@@ -1,6 +1,6 @@
 <p align="center">
 
-![](https://komarev.com/ghpvc/?username=swagmaster25&abbreviated=true&color=85A380)
+![](https://komarev.com/ghpvc/?username=swagmaster25&abbreviated=true&color=85A380&label=Σ(º ﾛ º๑))
 
 ![image](https://github.com/user-attachments/assets/400132f8-55d3-4d3a-a79b-08d67558d630)
 
