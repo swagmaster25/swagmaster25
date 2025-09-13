@@ -1,10 +1,10 @@
 <p align="center">
+  [strawpage](https://swagmaster25.straw.page/) . [atabook](https://swagmaster25.atabook.org/?page=1)
+  
 
-![](https://komarev.com/ghpvc/?username=swagmaster25&abbreviated=true&color=85A380&label=☆)
+<img width="828" height="207" alt="image" src="https://github.com/user-attachments/assets/c6d73b98-11f9-4e6d-8e4f-b591657b7a09" />
 
-![image](https://github.com/user-attachments/assets/400132f8-55d3-4d3a-a79b-08d67558d630)
-
-c+h . w2i . highk a wip
+  ![](https://komarev.com/ghpvc/?username=swagmaster25&abbreviated=true&color=5E5E5E&label=　☆　)
 
 </p>
 
